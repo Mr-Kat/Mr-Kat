@@ -10,4 +10,4 @@
 
 ⚡ Fun fact: ☢️<b>I might be quirky</b>☢️
 
-<img src="https://miro.medium.com/max/1600/1*l-lCzn_E6dTqbYRKOC8lHw.gif" width=500>
+<img align="center" src="https://gifyu.com/image/otz2" width=300>
