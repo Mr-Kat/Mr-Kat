@@ -1,6 +1,6 @@
 ### Hell0 👋
 
-⚡ I’m currently <b>procastinating on building stuff</b>
+⚡ I’m currently <b>procastinating</b>
 
 ⚡ Pronouns: <b>He/Him</b>
 
