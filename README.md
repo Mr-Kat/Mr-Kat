@@ -8,4 +8,4 @@
 
 ⚡ Fun fact: <b>I shower everyday</b>
 
-<img src="https://i.gifer.com/1pLh.gif" width=300>
+<img src="https://files.gamebanana.com/img/ico/sprays/_1317-.gif" width=300>
