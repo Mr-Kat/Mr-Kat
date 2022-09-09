@@ -8,4 +8,4 @@
 
 ⚡ Fun fact: <b>I shower everyday</b>
 
-<img src="https://pusheenblog.weebly.com/uploads/3/1/1/0/31107781/793875.gif" width=300>
+<img src="https://i.gifer.com/1pLh.gif" width=300>
