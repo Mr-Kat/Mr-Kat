@@ -7,5 +7,3 @@
 ⚡ Learning: <b>React Native</b>
 
 ⚡ Fun fact: <b>I shower everyday</b>
-
-<img src="#" width=300>
